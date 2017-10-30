@@ -49,3 +49,6 @@
 ### Youtube playlists
 
 1. gkcs(https://www.youtube.com/channel/UCRPMAqdtSgd0Ipeef7iFsKw)
+
+2. naruto/naruto shippuden sad songs(https://www.youtube.com/watch?v=wEWF2xh5E8s&list=PLN-UW9Hp6cWjhgTB6sChKp1Lku4omEpKj&index=1)
+
